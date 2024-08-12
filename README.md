@@ -7,4 +7,4 @@ Eu sou a Ember 🔥
 - Gosto de ter tempo para relaxar e pensar 🌙
 - Amo gatinhos 😻
   
-![_](https://github.com/user-attachments/assets/9c7b59a2-8894-4aaf-b10e-4549209c3c49)
+![image](https://github.com/user-attachments/assets/d1d4b36b-b11f-4127-8e59-188a871d2abf)
